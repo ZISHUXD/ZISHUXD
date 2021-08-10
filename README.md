@@ -1,8 +1,8 @@
 -Hi, I’m @ZISHUXD
 - I’m interested in Coding and Im a professional Hacker
 - I’m currently learning nothing
-- I’m  collaborating with @Scriptkiddi
-- How to reach me on dc DA ONION#6831
+- I’m  collaborating with @Viktor
+- How to reach me on dc ________#1717
 
 <!---
 ZISHUXD/ZISHUXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
